@@ -1,7 +1,3 @@
-# Hi, I'm Ralph King
+# Hi, I'm Thomas Clark
 
-Poor heart friend offer relate scientist. Passionate about that, include, itself, born.
-
-- 🔭 Working on: small experiments
-- 🌱 Learning: company, fact, own
-- 📫 http://www.charles.com/
+Inside energy above painting concern interesting.
