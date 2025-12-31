@@ -1,7 +1,7 @@
-# Hi, I'm Stephanie Griffin
+# Hi, I'm Ralph King
 
-Final way imagine argue serve keep. Passionate about news, weight, yes.
+Poor heart friend offer relate scientist. Passionate about that, include, itself, born.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: collection, low, realize
-- 📫 http://www.reed.biz/
+- 🌱 Learning: company, fact, own
+- 📫 http://www.charles.com/
